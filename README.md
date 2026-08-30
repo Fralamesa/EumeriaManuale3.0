@@ -1,0 +1,1 @@
+# EumeriaManuale3.0
